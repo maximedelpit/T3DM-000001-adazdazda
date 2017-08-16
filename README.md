@@ -1,1 +1,0 @@
-# T3DM-000001-adazdazda
